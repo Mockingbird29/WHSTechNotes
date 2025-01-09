@@ -31,3 +31,7 @@ In malaw's capital Lilongwe hospital has integrated new safety software that all
 In the digital age, brain rot has been a side effect with the increase of technology usage. To have a clear understanding of brain-rot, one must know how to define it, and its effects. Brain rot is used to define the loss of the ability to critical think. Brain-rot is caused by a costenten domain hit when consuming online content for a considerable amount of time. Effects such as regurgitating unfinished thoughts, mimicking phrases, and trend following are associated with brain rot. In my opinion digital media has had both negative effects and positive. When spreading information, digital media is a great tool, but when it comes to the quality of information as far as having all the facts it falls short. Only when critical thinking is applied to my consumption of digital media is it useful in any regard. 
 # december 16, 2024
 yes ma'ma
+# January 8, 2025
+My Favirot thing we did from last sumester was code combat and coding for Minecreaft. 
+In the second sumester I would like to work on certifications.
+I want to be a Cyber Security Analyst after I leave college and wanted to get a head stat on certification that whould help me land a job. J)obs in this field are looking at Cerification such as (cISm) Cerified Information Seccerity Manager, (CISA) Certified information Systems,and SANS/GIAC. I would like to work on these while in high school.
