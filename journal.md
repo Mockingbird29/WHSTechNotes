@@ -35,7 +35,7 @@ yes ma'ma
 My Favirot thing we did from last sumester was code combat and coding for Minecreaft. 
 In the second sumester I would like to work on certifications.
 I want to be a Cyber Security Analyst after I leave college and wanted to get a head stat on certification that whould help me land a job. J)obs in this field are looking at Cerification such as (cISm) Cerified Information Seccerity Manager, (CISA) Certified information Systems,and SANS/GIAC. I would like to work on these while in high school.
-# Jaunary 13, 2025
+# January 13, 2025
 When faced with change, workers are asked to adapt or be left behind. In the workplace this means when innovation makes work more efficient a number of jobs become obsolete.  This new wave of technology named Ai, is the latest example of innovation making work more efficient than ever through possible. Tasks that use to take teams of twenty people are now being completed by one person simply collecting data and analyzing it with Ai. 
 Skills that people spend years developing such as coding, writing, mathematics, problem solving, risk management etc etc, are no longer needed to perform at such a high level to complete a tasks. 
 This begs the question how do workers adapt to a system that makes their skills less valuable to their employers. Answer they learn the systems that makes their skill less valuable. By finding ways to improve and utilize this system to their advantage they become essential to the success and development and growth of a system. 
