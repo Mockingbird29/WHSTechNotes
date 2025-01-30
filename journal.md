@@ -43,3 +43,10 @@ This begs the question how do workers adapt to a system that makes their skills 
 The Governments decision to ban Tik-Tok was enacted with the intention of protecting American citizens date. Yet they failed to account for the consequences of taking away an app that people use to express themselves and share information. Many Americans feel as though this was a violation of their freedom of speech, or in some way limited the spread of information. In attempt to still maintain some control over their date, many Americas went to Red Note a social media platform housed in china. Which cause more danger to US citizens. Rather than devolving to social media platforms in America, or meta platforms that limit their creativity and expression; they’d give there date communist-country and abide by its rules. 
 Security concerns, may have been the motive behind these events, yet Tik Tok was a safer choice. 
 If I was a developer for Tik Tok,  I’d write code that ensures  date can only be collected and used for the user experience rather than government officials. The main thing I’ve learned from this experience is to never take gifts like Tik Tok for granted. It only takes moments for something to be gone. The second lesson I learned was how to approach social media in a better way. Instead of consuming endless videos daily, I can use it the way it was intended to, by connecting and creating  content of my own and telling my own story. 
+# January 30, 2025
+| Name     |       Car      |         Mistake           |
+|          |                |
+| Jimmy    | Honda Civic    | Drilled Hole in gas Tank  |
+| Kayla    | GMC Sierra     | Fixed wrong proble        |
+| Bart     | Toyota corolla | Left Stains on Carpet     |
+| Harrison | Subaru Forester| Left the oil cap off      |
