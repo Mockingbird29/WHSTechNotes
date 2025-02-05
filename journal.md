@@ -50,3 +50,7 @@ If I was a developer for Tik Tok,  I’d write code that ensures  date can only 
 | Kayla    | GMC Sierra     | Fixed wrong proble        |
 | Bart     | Toyota corolla | Left Stains on Carpet     |
 | Harrison | Subaru Forester| Left the oil cap off      |
+# February 3, 2025
+When technology fails us, it often comes with a great cost, this time it was 67 life’s, 
+in the future it could be more. Technology in aircraft has truly came a long way, but there  is always room for improvement. 
+In the recent crash there was a miscalculation in the coordination of where the planes were position, leading to an accident in mid air. Technology that could help with this is AI-driven prediction systems, which analysis patterns and is constantly learning. Tech like this offers an additional layer of safety to prevent these devastating outcomes from happening again. 
