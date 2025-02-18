@@ -59,3 +59,5 @@ The date from football players could be analyzed more effectively if players wer
  Regrettably, there are some for seeable changes, with implementing these suits, such as Heat, ware and tear, and a tracking system that would be able to withstand the brutally of the sport. 
 Luckily many of these problems have been solved by third parties; laying the ground work for this project. As testing for this project continues date will be collected to ensure its successful implementation. 
 Given that there is an endless amount of teams to collect data from, the first team to utilize this technology will be the first to see its benefits 
+# February 18, 2025
+The Lesson I leard last week was to look at the promblem before judging how difficult it is. I learn this lesson while finshing ansignment I had been procrastnating on for Astronomy. this lesson is helping me enven now in this class, because Instead of waiting half a week to get this done I looked at the Journal and saw that is wasn't haerd, it just takes some time. 
