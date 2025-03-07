@@ -65,3 +65,11 @@ The Lesson I leard last week was to look at the promblem before judging how diff
 AI can analyze key trending words to appeal to a younger audience for a brief period of time; however, there are some foreseen challenges. When trending words are introduced to the youth the context on when to use them would be hard to analyze. Secondly, most of the newer generations words are made up and not fully understood, in addition to having no defined meaning. 
 To my knowledge Engaging in lingo that is unprofessional when conversing with clients or communicating ideas and steps for incoming projects, will cause unnecessary chaos. Trending language should only be used to temporarily appeal to an audience, otherwise it damages the integrity of the company. 
 However, when it comes to outreach for new talent the use of trending lingo might be useful. If new age terminology helps employees feel closer by the casualness of their words, this could lead to a better work environment and a fuller work experience. Informal language would work better in creative space as long as employees can still clearly communicate their ideas. 
+# March 6, 2025
+| Syntax      | Description | Test Text     |
+| :---     |    :----:          |          ---:          |
+| Zara     | Telekenesis        | Secue Building         |
+| Aether   | Weather Manipiation| Prevent Assassination  |
+| Thome    | Invisibiltity      | Underwater Rescue      |
+| Trangier | Shapeshifting      | extract Prisoner       |
+| Silver   | Mind Control       | Retrieve stolen goods  |
