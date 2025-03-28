@@ -73,3 +73,7 @@ However, when it comes to outreach for new talent the use of trending lingo migh
 | Thome    | Invisibiltity      | Underwater Rescue      |
 | Trangier | Shapeshifting      | extract Prisoner       |
 | Silver   | Mind Control       | Retrieve stolen goods  |
+# march 24, 2025
+The use of technology in March Madness has changed how I see the tournament. AI predictions and perfect brackets bring a new level of excitement, but they can also take away from the unpredictable fun that makes the tournament so exciting. March Madness is known for surprises and upsets, and sometimes these AI predictions can make the event feel more like a series of data points than an unpredictable sports spectacle. While AI is impressive, it sometimes feels like it reduces the excitement of those unexpected moments.
+
+At the same time, social media and streaming services have made the fan experience better by making the tournament more accessible and interactive. Fans can now watch games anywhere and interact with others in real time on platforms like Twitter and Instagram. This creates a sense of community and makes the tournament more personal. The way people watch games has shifted, with fans now able to follow the action in whatever way suits them, whether through live streaming or short social media updates. This new way of experiencing March Madness is more inclusive and allows fans to stay connected, no matter where they are.
