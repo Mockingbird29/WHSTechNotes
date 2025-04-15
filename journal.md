@@ -79,4 +79,10 @@ The use of technology in March Madness has changed how I see the tournament. AI 
 At the same time, social media and streaming services have made the fan experience better by making the tournament more accessible and interactive. Fans can now watch games anywhere and interact with others in real time on platforms like Twitter and Instagram. This creates a sense of community and makes the tournament more personal. The way people watch games has shifted, with fans now able to follow the action in whatever way suits them, whether through live streaming or short social media updates. This new way of experiencing March Madness is more inclusive and allows fans to stay connected, no matter where they are.
 # march 31, 2025
 I’m feeling amazing today, knowing how much is in front of me and how much I can do in a day is freeing and so I’m working towards closing the distance between my potential and who I am certainly!! 
-As far as people I can talk to, there are many. For example my family, friends and colleagues. They support me in their own way but all of their support keeps me going. 
+As far as people I can talk to, there are many. For example my family, friends and colleagues. They support me in their own way but all of their support keeps me going.
+# April 7, 
+As a senior I no longer have a STAR test,however AI would have been a useful tool for when I did. The progressive tool of AI would have been beneficial to preparing for many tests during my high school years, but only to a certain extent.It is important to note that the improvement that took place with the use of ai was achieved with school supervision and regulation, which implies that that it was other factor that may have influence their test score. In my last couple of months in high school I've seen many people cheat with the use of AI and avoid the work that would have been preparing them for harder challenges such as the TSI, ASVAB, or the SAT. 
+In retrospect, who's to say that my own test scores wouldn't half improve if AI was readily available when I was younger. I may be biased seeing that I was homeschooled, but AI would have made it too easy to cheat. It's a great tool if used in moderation and with selective problem solving, however, it is not a replacement for the brain. 
+
+# April 14, 2025
+this is a free week
