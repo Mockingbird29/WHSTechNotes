@@ -83,6 +83,8 @@ As far as people I can talk to, there are many. For example my family, friends a
 # April 7, 
 As a senior I no longer have a STAR test,however AI would have been a useful tool for when I did. The progressive tool of AI would have been beneficial to preparing for many tests during my high school years, but only to a certain extent.It is important to note that the improvement that took place with the use of ai was achieved with school supervision and regulation, which implies that that it was other factor that may have influence their test score. In my last couple of months in high school I've seen many people cheat with the use of AI and avoid the work that would have been preparing them for harder challenges such as the TSI, ASVAB, or the SAT. 
 In retrospect, who's to say that my own test scores wouldn't half improve if AI was readily available when I was younger. I may be biased seeing that I was homeschooled, but AI would have made it too easy to cheat. It's a great tool if used in moderation and with selective problem solving, however, it is not a replacement for the brain. 
-
 # April 14, 2025
 this is a free week
+# May 8, 2025
+Straight and power has its limits, in a hypothetical situation between 100 men vs a gorilla the gorilla loses and isn’t close. 
+In a well organized environment such as an open space like an enclosed football filled, or a Colosseum; there would be time to organize an assault on the gorilla, after all no one said it was one on one. A group of unified men would be an overwhelming force if organized  strategically. There’s no doubt that at least 10 men would be ripped apart limp by limb, however the survival instinct of the other 90 would kick in. This would cause a chain reaction in the other men, with everyone spring into action in hopes there sacrifice won’t be for nothing. The advantage of the men is their strength in numbers which would mitigate fatigue allowing multiple rounds of men to attack and sub-out. 
